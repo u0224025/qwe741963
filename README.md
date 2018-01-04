@@ -17,3 +17,8 @@ HOW：使用tableau軟體，輸入大數據資料使軟體自動製作圖表，�
 
 ![NKFUST](123.png)
 ![NKFUST](S__6791218.jpg)
+![NKFUST](messageImage_1514833928414.jpg)
+![NKFUST](messageImage_1514833955272.jpg)
+![NKFUST](messageImage_1514832949997.jpg)
+
+
